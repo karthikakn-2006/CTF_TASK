@@ -1,1 +1,1 @@
-https://miro.medium.com/1*PmnXg9LknftoBZexoKcAZQ.gif
+https://www.google.com/url?sa=t&source=web&rct=j&url=https%3A%2F%2Fwww.facebook.com%2Fsliit.cscs%2Fvideos%2F-the-wait-is-overthe-cyber-security-student-community-presents-its-official-ctf-%2F745028658677466%2F&ved=0CBYQjRxqFwoTCKjC4PmR1ZYDFQAAAAAdAAAAABBu&opi=89978449
